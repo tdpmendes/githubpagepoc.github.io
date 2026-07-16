@@ -1,2 +1,2 @@
-# githubpagepoc.github.io
+# Yay it works!
 a POC on github pages
