@@ -15,6 +15,7 @@
 - Asse por 40 min a forno médio (180) préaquecido
 
 # Cobertura de chocolate durinho
+(retirado de https://www.receiteria.com.br/receita/cobertura-de-chocolate-durinha/)
 
 Ingredientes
 
