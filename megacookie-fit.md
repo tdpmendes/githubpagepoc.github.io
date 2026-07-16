@@ -19,8 +19,11 @@ Ingredientes:
 - 1 scoop de Whey
 
 Modo de Preparo:
-Em um recipiente, misture a farinha de aveia, Whey, açúcar mascavo e o fermento. (Ingredientes secos, se estiver preparando a versão VEGAN, misturar aqui)
-Acrescente a manteiga, ovo e misture até formar uma massa, em seguida incorpore a pasta de amendoim (Ingredientes pastosos)
-Modele-os em uma forma e leve para o forno pré aquecido em 180 º por aproximadamente 15 minutos.
+
+- Em um recipiente, misture a farinha de aveia, Whey, açúcar mascavo e o fermento. (Ingredientes secos, se estiver preparando a versão VEGAN, misturar aqui)
+
+- Acrescente a manteiga, ovo e misture até formar uma massa, em seguida incorpore a pasta de amendoim (Ingredientes pastosos)
+
+- Modele-os em uma forma e leve para o forno pré aquecido em 180 º por aproximadamente 15 minutos.
 
 Tempo de forno 30 m
